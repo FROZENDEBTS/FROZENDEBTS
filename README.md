@@ -11,4 +11,5 @@ Posted by alciregi, modified by community. See post 'Timeline' for change histor
 Retrieved 2026-07-28, License - CC BY-SA 4.0
 -->
 
-[<img src="https://i.postimg.cc/26xrQPqM/IMG-6563.png<img>" width="150">](https://honeyedbee.straw.page)
+[<img src="https://i.postimg.cc/26xrQPqM/IMG-6563.png<img>" width="150">](https://honeyedbee.straw.page)                [<img src="https://i.postimg.cc/Hndhy1xL/IMG-6593.png<img>" width="150">](https://open.spotify.com/playlist/6hX0kIOjrFKZPtx6iLjnnC?si=FHPP3dYVS-64F7FnPwE7Kg&utm_source=copy-link&pi=JQHIrfKGS0O6x)
+
