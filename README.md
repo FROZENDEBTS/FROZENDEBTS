@@ -1,3 +1,5 @@
 <p align="center">𝖫𝗂𝗀𝗁𝗍 𝗂𝗌 𝗈𝗇 𝗍𝗁𝖾 𝗐𝖺𝗒 , 𝗐𝖾’𝗅𝗅 𝖻𝖾 𝗁𝖺𝗏𝗂𝗇𝗀 𝖺 𝖿𝗎𝗇 𝗍𝗂𝗆𝖾 !</p>
 
-![clingyduo](https://files.catbox.moe/0jlsh9.png)
+
+
+![IMG 6550](https://i.postimg.cc/ZRKG60rW/IMG-6550.png)
