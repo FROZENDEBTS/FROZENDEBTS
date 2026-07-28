@@ -3,3 +3,12 @@
 
 
 ![IMG 6550](https://i.postimg.cc/ZRKG60rW/IMG-6550.png)
+
+
+<!--
+Source - https://stackoverflow.com/a/26138535
+Posted by alciregi, modified by community. See post 'Timeline' for change history
+Retrieved 2026-07-28, License - CC BY-SA 4.0
+-->
+
+[<img src="https://i.postimg.cc/26xrQPqM/IMG-6563.png<img>" width="150">]
