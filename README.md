@@ -7,4 +7,4 @@
 ![IMG 7184](https://i.postimg.cc/6qbrJfNt/IMG-7184.png)
 
 
-[<img src="https://i.postimg.cc/vmVBzLmL/IMG-7201.png<img" width="200">](https://frozendebtlvr.straw.page) [<img src="https://i.postimg.cc/cCZBZLzj/IMG-7206.png<img" width="200">](https://aeonberries.atabook.org)
+[<img src="https://i.postimg.cc/vmVBzLmL/IMG-7201.png<img" width="175">](https://frozendebtlvr.straw.page) [<img src="https://i.postimg.cc/cCZBZLzj/IMG-7206.png<img" width="180">](https://aeonberries.atabook.org)
