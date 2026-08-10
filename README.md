@@ -1,5 +1,7 @@
 <div align="center">
 
+![IMG 7209](https://i.postimg.cc/QN1jydhs/IMG-7209.png)
+
 𝗂𝗍'𝗌 𝗁𝖺𝗋𝖽 𝗍𝗈 𝗌𝖾𝖾 𝗒𝗈𝗎, 𝖻𝗎𝗍 𝖨 𝗐𝗂𝗌𝗁 𝗒𝗈𝗎 𝗐𝖾𝗋𝖾 𝗋𝗂𝗀𝗁𝗍 𝗁𝖾𝗋𝖾 !
 
 ![IMG 7181](https://i.postimg.cc/jSMbVWDc/IMG-7181.png)
@@ -11,3 +13,7 @@
 
 
 [<img src="https://i.postimg.cc/cCZBZLzj/IMG-7206.png<img" width="200">](https://aeonberries.atabook.org)
+
+![IMG 7210](https://i.postimg.cc/mZCT5gBT/IMG-7210.png)
+
+
