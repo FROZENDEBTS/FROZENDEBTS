@@ -1,6 +1,6 @@
 <div align="center">
 
-𝗂𝗍'𝗌 𝗁𝖺𝗋𝖽 𝗍𝗈 𝗌𝖾𝖾 𝗒𝗈𝗎, 𝖻𝗎𝗍 𝖨 𝗐𝗂𝗌𝗁 𝗒𝗈𝗎 𝗐𝖾𝗋𝖾 𝗋𝗂𝗀𝗁𝗍 𝗁𝖾𝗋𝖾 !
+<img src="https://i.postimg.cc/Xvy4wjvF/IMG-7191.png" width="20">      𝗂𝗍'𝗌 𝗁𝖺𝗋𝖽 𝗍𝗈 𝗌𝖾𝖾 𝗒𝗈𝗎, 𝖻𝗎𝗍 𝖨 𝗐𝗂𝗌𝗁 𝗒𝗈𝗎 𝗐𝖾𝗋𝖾 𝗋𝗂𝗀𝗁𝗍 𝗁𝖾𝗋𝖾 !
 
 ![IMG 7181](https://i.postimg.cc/jSMbVWDc/IMG-7181.png)
 
