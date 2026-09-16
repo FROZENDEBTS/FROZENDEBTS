@@ -6,7 +6,7 @@
 
 ![IMG 7181](https://i.postimg.cc/jSMbVWDc/IMG-7181.png)
 
-@pt-of-forsaken ❤️
+[@𝗉𝗍-𝗈𝖿-𝖿𝗈𝗋𝗌𝖺𝗄𝖾𝗇](https://github.com/pt-of-forsaken) ❤️
 
 ![IMG 7184](https://i.postimg.cc/6qbrJfNt/IMG-7184.png)
 
